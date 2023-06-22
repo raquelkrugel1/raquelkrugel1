@@ -1,16 +1,13 @@
-### Hi there 👋
+olá eu sou a Raquel🥇🪗
 
-<!--
-**raquelkrugel1/raquelkrugel1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+estou cursando o ALURA✔️
+estou no 2 ano do ensino médio🎃
+pretendo fazer veterinaria🖤
+GMAIL:raquel.krugel.cordeiro@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+![image](https://github.com/raquelkrugel1/raquelkrugel1/assets/136753317/d96ee169-b206-454f-b2bf-f6b241c04835)
+
+
